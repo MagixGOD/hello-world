@@ -2,4 +2,4 @@
 
 Bonjour! Hallo! Privet! Ni hao!
 Je suis David (:
-So this is permamence?
+What's the matter with the stalking?
