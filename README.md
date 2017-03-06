@@ -1,2 +1,5 @@
 # hello-world
-Per aspera ad astra
+
+Bonjour! Hallo! Privet! Ni hao!
+Je suis David (:
+So this is permamence?
